@@ -4,13 +4,16 @@
 # Personal Invitation 
 ====================
  
-Join us at the Ricoh USA Career Fair on Oct 3, 2023 at the University Memorial Center, Glenn Miller Ballroom, to discover exciting internships and full-time positions.
+Join us at Ricoh USA for the National Mentor day open house, Oct 27 2023 at the Boulder office:
+
+6300 Diag Hwy
+Boulder, CO 80301
  
-At Ricoh USA, we're committed to innovation and sustainability. Explore opportunities, network with our team, and kickstart your career journey with us. We look forward to meeting you and discussing your future at Ricoh USA.
+At Ricoh USA, we're committed to innovation and sustainability. Explore opportunities, network with our team, and kickstart your career journey with us. We look forward to meeting you.
  
  
-Flyer
-https://www.dropbox.com/scl/fi/xh82cv6myurkfv1gsohrz/RIC037_Recruitment_Job-Fair_Flyers_final_v2.pdf?rlkey=lo5syiqka18iaxy9bfvf4p1bi&dl=0
+Flyer available [here](https://www.dropbox.com/scl/fo/gpesm3va8pel6pbthra0s/h?rlkey=276fy8p1pvqorxsr9xk3p46nb&dl=0)
+
  
 Internships
 https://www.dropbox.com/scl/fi/tn0wz4zq3wivgwhcgox9k/RICOH-2024-Intern-Openings.pdf?rlkey=bk67cnoj302jpv283230etnyh&dl=0

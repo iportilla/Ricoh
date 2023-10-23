@@ -1,7 +1,7 @@
 # Ricoh USA
 
 </p>
-  <dd>National Mentoring Day @Ricoh USA </dd><a href="http://www.youtube.com/watch?feature=player_embedded&v=EnU9W37xGuQ
+  <dd>National Mentoring Day</dd><a href="http://www.youtube.com/watch?feature=player_embedded&v=EnU9W37xGuQ
 " target="_blank"><img src="http://img.youtube.com/vi/EnU9W37xGuQ/0.jpg" 
 alt="Ricoh USA" width="240" height="180" border="10" /></a>
 

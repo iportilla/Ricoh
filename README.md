@@ -1,18 +1,11 @@
 # Ricoh USA
 
-</p>
-  <dd>National Mentoring Day</dd><a href="http://www.youtube.com/watch?feature=player_embedded&v=EnU9W37xGuQ
-" target="_blank"><img src="http://img.youtube.com/vi/EnU9W37xGuQ/0.jpg" 
-alt="Ricoh USA" width="240" height="180" border="10" /></a>
-
 =====================
 # Personal Invitation 
 =====================
  
-Join us at Ricoh USA for the National Mentor day open house, Oct 27 2023 at the Boulder office:
+Join us at the Ricoh booth for the [Career Day 2024](https://www.mines.edu/careers/career-days/):
 
-6300 Diag Hwy
-Boulder, CO 80301
  
 At Ricoh USA, we're committed to innovation and sustainability. Explore opportunities, network with our team, and kickstart your career journey with us. We look forward to meeting you.
  

@@ -14,11 +14,11 @@ At Ricoh USA, we're committed to innovation and sustainability. Explore opportun
 
 Including:
 
-- Applied Machine Learning and AI Engineering Intern [link](https://careers.ricoh-usa.com/#en/sites/CX_1/job/5148/?utm_medium=jobshare&utm_source=External+Job+Share)
-- SW Engineer – Microservice Developer Intern [ling](https://careers.ricoh-usa.com/#en/sites/CX_1/job/5292/?utm_medium=jobshare&utm_source=External+Job+Share)
-- Development Support Intern [link](https://careers.ricoh-usa.com/#en/sites/CX_1/job/5153/?utm_medium=jobshare&utm_source=External+Job+Share)
-- Software Engineer Intern [link](https://careers.ricoh-usa.com/#en/sites/CX_1/job/5191/?utm_medium=jobshare&utm_source=External+Job+Share)
-- Applied Data Science Intern – Generative AI [linlk](https://careers.ricoh-usa.com/#en/sites/CX_1/job/5206/?utm_medium=jobshare&utm_source=External+Job+Share)
+- Applied Machine Learning and AI Engineering Intern [Apply](https://careers.ricoh-usa.com/#en/sites/CX_1/job/5148/?utm_medium=jobshare&utm_source=External+Job+Share)
+- SW Engineer – Microservice Developer Intern  [Apply](https://careers.ricoh-usa.com/#en/sites/CX_1/job/5292/?utm_medium=jobshare&utm_source=External+Job+Share)
+- Development Support Intern  [Apply](https://careers.ricoh-usa.com/#en/sites/CX_1/job/5153/?utm_medium=jobshare&utm_source=External+Job+Share)
+- Software Engineer Intern  [Apply](https://careers.ricoh-usa.com/#en/sites/CX_1/job/5191/?utm_medium=jobshare&utm_source=External+Job+Share)
+- Applied Data Science Intern – Generative AI  [Apply](https://careers.ricoh-usa.com/#en/sites/CX_1/job/5206/?utm_medium=jobshare&utm_source=External+Job+Share)
 
 Ivan Portilla
 

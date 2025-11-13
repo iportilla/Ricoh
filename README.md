@@ -4,7 +4,7 @@
 # Personal Invitation 
 =====================
  
-Join us at the Ricoh booth for the [CU Career Day](https://boulder.joinhandshake.com/emp/career_fairs/58363):
+Join us at the Ricoh booth for the Fraternity and Sorority Life X Career Services special event, Greek Career Connect
 
  
 At Ricoh USA, we're committed to innovation and sustainability. Explore opportunities, network with our team, and kickstart your career journey with us. We look forward to meeting you.
